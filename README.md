@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mastercreationz01
+- 👋 Hi, I’m @Mastercr
 - 👀 I’m interested in ui/ux designing 
 - 🌱 I’m currently learning digital marketting
 - 💞️ I’m looking to collaborate on ui/ux, web develoment 
